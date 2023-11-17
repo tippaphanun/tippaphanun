@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tippaphanun
+- 👋 Hi, I’m Tippaphanun (Gift)
 - 👀 I’m interested in ...
 - 🌱 I’m currently study in Computer Engineering & Digital Technology, Chulalongkorn University
 - 📫 How to reach me : ig: @tippaphanun
